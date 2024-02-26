@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @leviriggs
 - 👀 I’m interested in star wars
 - 🌱 I’m currently learning ur mom
-- 💞️ I’m looking to collaborate on gyotte
+- 💞️ I’m looking to collaborate on ur gyotte
 - 📫 How to reach me call 12345678910
 - 😄 Pronouns: dez
 - ⚡ Fun fact: gyotte
